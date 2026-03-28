@@ -1,1 +1,1 @@
-# rsschool-cv
+https://khrushchevskiydomovoi.github.io/rsschool-cv/
